@@ -1,6 +1,6 @@
 ## Hi, I'm Max Puig ✨​
 
-📚 Robotics Intelligence student at Universitat Jaume I<br />
+📚 Robotics Intelligence graduate at Universitat Jaume I<br />
 🖥️ Broadcast Technician<br />
 
 ## 🌐 Socials:
